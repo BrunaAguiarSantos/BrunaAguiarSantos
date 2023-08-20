@@ -1,7 +1,7 @@
 - 👋 It's me Bruna Aguiar Santos
 - Full stack no momento, mas a meta é trabalhar na área de UX
 - Conhecimento nunca é demais né🤷🏽‍♀️
-- Minha meta é chegar sentir a ficha cair que eu to saindo da etec
+- Minha meta é chegar  no final do ano no 3º, e sentir a ficha cair que eu to saindo da etec
 - minhas redes atualmente--> Instagram:: @brun4_ngel😃👍
 
 <!---
